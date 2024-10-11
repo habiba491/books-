@@ -3,3 +3,4 @@
 - atomic hapits 
 - why men love bi*ches 
 - good vibes good life 
+-surrounded by idiots 
